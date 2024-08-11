@@ -1,2 +1,2 @@
 # tutorial
-whtat to odo
+whtat to odoff
